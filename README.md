@@ -1,4 +1,4 @@
-👋 Hi, I’m @amandamileide
+👋 Hi, I’m Amanda
 
 💻 Explorando o Universo da Tecnologia
 
